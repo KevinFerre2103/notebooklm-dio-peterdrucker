@@ -20,7 +20,7 @@ https://www.rdstation.com/blog/agencias/peter-drucker/
 https://pt.scribd.com/document/488941467/As-cinco-preguntas-essenciais-que-voce-devera-fazer-sobre-a-sua-empresa
 https://www.passeidireto.com/arquivo/82355618/ebook-peter-drucker?
 
-Fontes retiradas de sites e vídeos dos ebooks.
+Fontes retiradas de sites blog, vídeos do especialista e ebooks.
 
 
 
